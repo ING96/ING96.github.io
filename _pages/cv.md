@@ -16,7 +16,9 @@ Education
 
 Scholarships
 ======
-* 
+* National Encouragement Scholarship
+* Service Star Scholarship
+* First class scholarship of Chinese Academy of Sciences
   
 Skills
 ======
